@@ -1,0 +1,2 @@
+# --------Constitutional-Crimes-Head-of-State-Sari-Saed------
+الجرائم الدستورية لرئيس الدولة - دراسة مقارنة فلسطين مصر الأردن فرنسا - ماجستير قانون عام - ساري سعد - الجامعة الإسلامية غزة 2020 | Constitutional Crimes Head of State Comparative Palestine Egypt Jordan France - Master Thesis Public Law - Researcher Sari Saed - Islamic University Gaza 2020 - DOI:10.17605/OSF.IO/YSTXU - ORCID:0009-0001-5704-4480
