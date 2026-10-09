@@ -18,7 +18,7 @@ Constitutional Crimes of the Head of State - A Comparative Study between Palesti
 - الرقم المرجعي: 1354433
 
 **2. ORCID - المعرف الدولي للباحث / Researcher ID**
-- الرابط: https://orcid.org/0009-0001-5704-4480
+- الرابط: https://https://orcid.org/0009-0008-4148-4669
 - الرقم: 0009-0001-5704-4480
 
 **3. Zenodo - التابع لـ CERN / الاتحاد الأوروبي**
@@ -37,6 +37,6 @@ Saed, S. (2020). الجرائم الدستورية لرئيس الدولة - د�
 
 ### الباحث / Author
 **ساري سعد / Sari Saed**
-ORCID: https://orcid.org/0009-0001-5704-4480
+ORCID: https://orcid.org/0009-0008-4148-4669
 Google Scholar: Sari Saed
 GitHub: sarisaed
